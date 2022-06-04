@@ -1,1 +1,3 @@
 # OGT
+La economía cambiante de estos días genera paradigmas en los cuales las piscinas de liquidez están presentándose como posibles soluciones al problema de liquidez en los mercados y las constantes caídas de los mismos ante la especulación y los ánimos de controlar el poder adquisitivo de las personas 
+One God Token, Por sus siglas $OGT$, bajo el token \$OGT, se presenta como una $cryptodivisa$, creada bajo un serio grupo de Estudio dedicado a analizar profunda, mátemática y sobre todo estádisticamente como funciona opera y se comportan los mercados de $cryptodivisas$, con más de $chorrosientos$ años de experiencia en la enseñanza de strategias ágiles en la acumulación y manejo de   $cryptodivisas$,  acompaña a sus inversores conectando productos y servicios.
